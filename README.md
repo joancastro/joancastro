@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joancastro
-- 👀 My interests are in coding, video games, basketball, volleyball, sleeping, the list goes on and on ... 
+- 👀 My interests include coding, video games, basketball, volleyball, sleeping, the list goes on and on ... 
 - 🌱 I’m currently studying Computer Science
 - 💞️ I’m looking to collaborate on fun projects
 - 📫 How to reach me: castrojoan58@live.com
